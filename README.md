@@ -5,8 +5,8 @@
 
 Here are some ideas to get you started:
 
-- 🔭 Atualmente cursando informatica no [CTISM](https://www.ufsm.br/unidades-universitarias/ctism/)
+- 🔭 Atualmente cursando informática no [CTISM](https://www.ufsm.br/unidades-universitarias/ctism/)
 - 💬
-- 📫 Caso precisar entrar em contanto:gmail vitordasilva7821@gmail.com
+- 📫 Caso precisar entrar em contanto [Instagram](instagram.com/vitor.pps/)
 - ⚡ Fun fact:not interesting
 -->
