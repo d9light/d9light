@@ -1,6 +1,6 @@
 ###  Salve 👺
 
-Me chama Vitor,atualmente tenho 16 anos,sou natural de Santa Maria,estou atualmente cursando informática no [CTISM](https://www.ufsm.br/unidades-universitarias/ctism/).
+Me chama Vitor,tenho 16 anos,sou natural de Santa Maria,estou atualmente cursando informática no [CTISM](https://www.ufsm.br/unidades-universitarias/ctism/).
 
 ### 😡 Hobbies
 
@@ -15,5 +15,4 @@ Me chama Vitor,atualmente tenho 16 anos,sou natural de Santa Maria,estou atualme
 
 
 
-#### "Acredite em milagres, mas não dependa deles." 
-  - Immanuel Kant
+#### "Acredite em milagres, mas não dependa deles.   - Immanuel Kant" 
