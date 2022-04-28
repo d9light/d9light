@@ -5,10 +5,15 @@ Me chama Vitor,atualmente tenho 16 anos,sou natural de Santa Maria,estou atualme
 ### 😡 Hobbies
 
 * Na parte do meu tempo estou jogando valorant ou cs.
-
+* Sofrer no barro vindo pro colegio.
 ### 📫 Caso precisar entrar em contanto 
-
-1. [Instagram](Instagram.com/vitor.pps). 
-2. [Twitter](https://twitter.com/d9light_).
-3. [Steam](https://steamcommunity.com/id/d9light)
+* [Instagram](Instagram.com/vitor.pps). 
+* [Twitter](https://twitter.com/d9light_).
+* [Steam](https://steamcommunity.com/id/d9light)
  
+
+
+
+
+#### "Acredite em milagres, mas não dependa deles." 
+  - Immanuel Kant
