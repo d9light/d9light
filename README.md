@@ -11,12 +11,12 @@ Me chama Vitor,tenho 16 anos,sou natural de Santa Maria,estou atualmente cursand
 
 ## ☔ 𝕳𝖔𝖇𝖇𝖎𝖊𝖘
 
-### 🎮Jogar joguinhos🎮 
+### ✡Jogar joguinhos 
 	ᴠᴀʟᴏʀᴀɴᴛ
 	ᴄs
 	ᴄᴏᴅ
 	ɢᴛᴀ
-### 👀Ver animes
+### 🔮Ver animes
 	 ᴋɪᴍᴇᴛsᴜ
 	 sʜɪɴɢᴇᴋɪ 
 	 ᴅʀ.sᴛᴏɴᴇ				
