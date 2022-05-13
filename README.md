@@ -26,19 +26,15 @@ Me chama Vitor,tenho 16 anos,sou natural de Santa Maria,estou atualmente cursand
 * [Steam](https://steamcommunity.com/id/d9light)	
 
 ### ♾ 𝕾𝖊𝖙𝖚𝖕 
----------------------  | -------------------- | 
- Teclado               | Husky Blizarrd       |
----------------------  |--------------------- |
- Headset               | Razer BlackShark V2  |
- --------------------- |--------------------- |
- Mouse                 | Logitech G403        |
- --------------------- |--------------------- |
- Monitor               | Acer 165hz           |
----------------------  |--------------------- |
- Processador           | I5-7440              |
----------------------  |--------------------- |
- Placa de Video        | GTX 1050             |
----------------------  |--------------------- |
+  Setup                |Modelo
+  ---------------------|---------------------   
+ Teclado               |Husky Blizarrd       
+ Headset               |Razer BlackShark V2    
+ Mouse                 |Logitech G403        
+ Monitor               |Acer 165hz             
+ Processador           |I5-7440                
+ Placa de Video        |GTX 1050            
+   
 
 
 ### ♫ 𝕸𝖚𝖘𝖎𝖈𝖆
@@ -47,3 +43,5 @@ Me chama Vitor,tenho 16 anos,sou natural de Santa Maria,estou atualmente cursand
  	*sᴏᴍᴇᴏɴᴇ ᴛᴏ ʏᴏᴜ
 
 ###### "Acredite em milagres, mas não dependa deles.   - Immanuel Kant" 
+
+![GIF LEGAL TBM](https://i.pinimg.com/originals/c3/0b/99/c30b9938537a539e6e0d587648277e5f.gif)
