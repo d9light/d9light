@@ -12,14 +12,14 @@ Me chama Vitor,tenho 16 anos,sou natural de Santa Maria,estou atualmente cursand
 ## ☔ 𝕳𝖔𝖇𝖇𝖎𝖊𝖘
 
 ### 🎮Jogar joguinhos🎮 
-	*ᴠᴀʟᴏʀᴀɴᴛ
-	*ᴄs
-	*ᴄᴏᴅ
-	*ɢᴛᴀ
+	ᴠᴀʟᴏʀᴀɴᴛ
+	ᴄs
+	ᴄᴏᴅ
+	ɢᴛᴀ
 ### 👀Ver animes
-	* ᴋɪᴍᴇᴛsᴜ
-	* sʜɪɴɢᴇᴋɪ 
-	* ᴅʀ.sᴛᴏɴᴇ				
+	 ᴋɪᴍᴇᴛsᴜ
+	 sʜɪɴɢᴇᴋɪ 
+	 ᴅʀ.sᴛᴏɴᴇ				
 ### ☯ 𝕮𝖆𝖘𝖔 𝖕𝖗𝖊𝖈𝖎𝖘𝖆𝖗 𝖊𝖓𝖙𝖗𝖆𝖗 𝖊𝖒 𝖈𝖔𝖓𝖙𝖆𝖓𝖙𝖔 
 * [Instagram](Instagram.com/vitor.pps)
 * [Twitter](https://twitter.com/d9light_)
@@ -38,9 +38,9 @@ Me chama Vitor,tenho 16 anos,sou natural de Santa Maria,estou atualmente cursand
 
 
 ### ♫ 𝕸𝖚𝖘𝖎𝖈𝖆
- 	*ᴛᴏxɪᴄ
- 	*ᴍᴏʀɢᴀɴᴀ
- 	*sᴏᴍᴇᴏɴᴇ ᴛᴏ ʏᴏᴜ
+ 	ᴛᴏxɪᴄ
+ 	ᴍᴏʀɢᴀɴᴀ
+ 	sᴏᴍᴇᴏɴᴇ ᴛᴏ ʏᴏᴜ
 
 ###### "Acredite em milagres, mas não dependa deles.   - Immanuel Kant" 
 
