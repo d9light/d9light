@@ -11,16 +11,16 @@ Me chama Vitor,tenho 16 anos,sou natural de Santa Maria,estou atualmente cursand
 
 ## 😡 𝕳𝖔𝖇𝖇𝖎𝖊𝖘
 
-###🎮Jogar joguinhos🎮 
+### 🎮Jogar joguinhos🎮 
 	*ᴠᴀʟᴏʀᴀɴᴛ
 	*ᴄs
 	*ᴄᴏᴅ
 	*ɢᴛᴀ
-###👀Ver animes
+### 👀Ver animes
 	* ᴋɪᴍᴇᴛsᴜ
 	* sʜɪɴɢᴇᴋɪ 
 	* ᴅʀ.sᴛᴏɴᴇ				
-📫 𝕮𝖆𝖘𝖔 𝖕𝖗𝖊𝖈𝖎𝖘𝖆𝖗 𝖊𝖓𝖙𝖗𝖆𝖗 𝖊𝖒 𝖈𝖔𝖓𝖙𝖆𝖓𝖙𝖔 
+### 📫 𝕮𝖆𝖘𝖔 𝖕𝖗𝖊𝖈𝖎𝖘𝖆𝖗 𝖊𝖓𝖙𝖗𝖆𝖗 𝖊𝖒 𝖈𝖔𝖓𝖙𝖆𝖓𝖙𝖔 
 * [Instagram](Instagram.com/vitor.pps)
 * [Twitter](https://twitter.com/d9light_)
 * [Steam](https://steamcommunity.com/id/d9light)	
