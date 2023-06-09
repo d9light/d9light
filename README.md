@@ -39,8 +39,6 @@ Me chamo Vitor,tenho 17 anos,sou natural de Santa Maria,estou atualmente cursand
 
 
 ### ♫ 𝕸𝖚𝖘𝖎𝖈𝖆
- 	ᴛᴏxɪᴄ
- 	ᴍᴏʀɢᴀɴᴀ
  	sᴏᴍᴇᴏɴᴇ ᴛᴏ ʏᴏᴜ
 
 ###### "Acredite em milagres, mas não dependa deles.   - Immanuel Kant" 
