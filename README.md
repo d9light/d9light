@@ -7,7 +7,7 @@
 
 
 
-Me chamo Vitor,tenho 17 anos,sou natural de Santa Maria,estou atualmente cursando informática no [CTISM](https://www.ufsm.br/unidades-universitarias/ctism/).
+Me chamo Vitor,tenho 18 anos,sou natural de Santa Maria,estou atualmente cursando informática no [CTISM](https://www.ufsm.br/unidades-universitarias/ctism/).
 
 ## ☔ 𝕳𝖔𝖇𝖇𝖎𝖊𝖘
 
