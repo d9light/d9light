@@ -10,7 +10,7 @@
 Me chamo Vitor, tenho 19 anos, sou natural de Santa Maria e atualmente estou cursando Sistemas de Informação pela UFSM (Universidade Federal de Santa Maria). Também possuo formação técnica em Informática pelo [CTISM](https://www.ufsm.br/unidades-universitarias/ctism/).
 
 ### ☯ 𝕮𝖆𝖘𝖔 𝖕𝖗𝖊𝖈𝖎𝖘𝖆𝖗 𝖊𝖓𝖙𝖗𝖆𝖗 𝖊𝖒 𝖈𝖔𝖓𝖙𝖆𝖓𝖙𝖔 
-* [Instagram](Instagram.com/vitor.pps)
+* [Instagram](Instagram.com/vitor.penhas)
 * [Twitter](https://twitter.com/d9light_)
 * [Steam](https://steamcommunity.com/id/d9light)	
 
