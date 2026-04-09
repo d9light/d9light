@@ -16,13 +16,15 @@ Me chamo Vitor, tenho 19 anos, sou natural de Santa Maria e atualmente estou cur
    ᴄ  
    ᴘʜᴘ  
    ʜᴛᴍʟ/ᴄss  
+   PYTHON 
+   
 ```
 
 
 ### ☯ 𝕮𝖆𝖘𝖔 𝖕𝖗𝖊𝖈𝖎𝖘𝖆𝖗 𝖊𝖓𝖙𝖗𝖆𝖗 𝖊𝖒 𝖈𝖔𝖓𝖙𝖆𝖓𝖙𝖔 
 * [Instagram](Instagram.com/vitor.penhas)
 * [Twitter](https://twitter.com/d9light_)
-* [Steam](https://steamcommunity.com/id/d9light)	
+* [Email](vitordapenhapintodasilva@gmail.com)	
 
       
 
