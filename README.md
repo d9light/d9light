@@ -1,4 +1,4 @@
-##  𝕾𝖆𝖑𝖛𝖊 💜
+##  𝕾𝖆𝖑𝖛𝖊 
 
 ![GIF LEGAL](https://i.pinimg.com/originals/8f/1f/94/8f1f94f276216e4aab8e134a548ad0f1.gif)
 
