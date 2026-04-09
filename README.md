@@ -25,14 +25,7 @@ Me chamo Vitor, tenho 20 anos e sou natural de Santa Maria - RS. Sou apaixonado 
   <img src="https://img.shields.io/badge/python-3670A0?style=for-the-badge&logo=python&logoColor=ffdd54" alt="Python">
 </div>
 
----
 
-### 📊 𝕰𝖘𝖙𝖆𝖙𝖎𝖘𝖙𝖎𝖈𝖆𝖘 𝖉𝖔 𝕲𝖎𝖙𝕳𝖚𝖇
-<div align="center">
-  <img src="https://github-readme-stats.vercel.app/api?username=SEU_USUARIO&show_icons=true&theme=tokyonight" alt="Estatísticas do Vitor">
-</div>
-
----
 
 ### ☯ 𝕮𝖆𝖘𝖔 𝖕𝖗𝖊𝖈𝖎𝖘𝖆𝖗 𝖊𝖓𝖙𝖗𝖆𝖗 𝖊𝖒 𝖈𝖔𝖓𝖙𝖆𝖙𝖔
 
